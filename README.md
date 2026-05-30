@@ -1,5 +1,5 @@
 
-<div align="center"><img src="https://file.garden/Zi60LroOThYMNcal/hibro.png" width="400" height="300" /></div>
+<div align="center"><img src="https://file.garden/Zi60LroOThYMNcal/hibro.png" width="" height="" /></div>
 
 <div align="center">under 15 fuck off dni</div>
 <div align="center">usually afk or offtab, whisps are preferred</div>
